@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Guinea pig Brownie claiming her celery](https://mentalhealthathome.org/wp-content/uploads/IMG_3453-e1651000107622.jpg)
